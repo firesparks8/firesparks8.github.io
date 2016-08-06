@@ -18,7 +18,7 @@ teaser                   : "sun.jpg"
 # breadcrumbs            : false # true, false (default)
 words_per_minute         : 200
 comments:
-  provider               : true "facebook"
+  provider               : "facebook"
   disqus:
     shortname            :
   discourse:
