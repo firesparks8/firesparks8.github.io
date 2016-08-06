@@ -14,7 +14,7 @@ description              : "Certified Paralegal | Project Manager | HR Professio
 url                      : "https://firesparks8.github.io"
 baseurl                  : # the subpath of your site, e.g. "/blog"
 repository               : "firesparks8/firesparks8.github.io"
-teaser                   : "sun.jpg"
+teaser                   : "sun.JPG"
 # breadcrumbs            : false # true, false (default)
 words_per_minute         : 200
 comments:
@@ -61,7 +61,7 @@ analytics:
 # Site Author
 author:
   name             : "Alexandra M. Desmond"
-  avatar           : "me.jpg"
+  avatar           : "Me.jpg"
   bio              : "I am a Jill-of-all-trades Project Manager, Certified Paralegal & HR professional"
   location         : "Florida"
   email            : "contact@metronariston.me"
