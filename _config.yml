@@ -23,7 +23,7 @@ comments:
     shortname            :
   discourse:
     server               :
-  facebook:                "https://developers.facebook.com/docs/plugins/comments"
+  facebook:                
     appid                : # optional
     num_posts            : # 5 (default)
     colorscheme          : # "light" (default), "dark"
