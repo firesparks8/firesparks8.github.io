@@ -1,7 +1,7 @@
 # main links links
 main:
-  - title: "Sample Navigation Link"
-    url: https://mmistakes.github.io/minimal-mistakes/docs/navigation/
+  - title: "HR Bloggers"
+    url: http://hrblogger.info/
 
-  - title: "Sample Navigation Link 2"
-    url: /
+  - title: "Top 100 HR Blogs"
+    url: http://blog.feedspot.com/hr-blogs/"
