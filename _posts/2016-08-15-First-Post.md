@@ -12,7 +12,7 @@ I am a Certified Paralegal and Project Manager in the Global HR Compliance depar
 
 Outside of work - I spend a lot of time championing environmental, animal rights or human rights related causes.  My husband and I foster shelter dogs as often as we can. I work on my positive reinforcement training with my rescue dog, Gambit. I love to go hiking or out on the boat and be outside with nature. While out there, I typically take a lot of photos. It's another long-time hobby of mine. My husband and I love to travel to new places - our list big trip was the Pacific Northwest - which has become one of our favorite regions. We also visit Karpathos, Greece (where my mother was born and I grew up partly) every other summer.
 
-When it comes to downtime: I love to watch Comedians in Cars getting Coffee or 30Rock, Parks and Rec and Friends on Netflix. My favorite show still on-air is Game of Thrones (Tyrion Targaryen has a nice ring to it, no?). I watch way more fan theories on YouTube than I should admit.
+When it comes to downtime: I love to watch Comedians in Cars getting Coffee or 30Rock, Parks and Rec, New Girl, The Mindy Project, and Friends on Netflix. My favorite show still on-air is Game of Thrones (Tyrion Targaryen has a nice ring to it, no?). I watch way more fan theories on YouTube than I should admit.
 
 So that is a little bit about me, thanks for stopping by!
 
