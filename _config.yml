@@ -14,7 +14,7 @@ description              : "Certified Paralegal | Project Manager | HR Professio
 url                      : "https://firesparks8.github.io"
 baseurl                  : # the subpath of your site, e.g. "/blog"
 repository               : "firesparks8/firesparks8.github.io"
-teaser                   : "sun.JPG"
+teaser                   : 
 breadcrumbs              : true
 words_per_minute         : 200
 comments:
