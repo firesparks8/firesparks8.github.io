@@ -31,7 +31,7 @@ Somewhere, subliminally, it is this type of manager-archetype I have judged all 
 You could say it's unfair, but I am sure we all do this. Whether you are conscious of it or not. 
 Whether it's Obi-wan or Chief Webber or Michael Scott or Leslie Knope or Jack Donaghey or Daniel Hillard's cool boss in Mrs. Doubtfire. We have these fictional character managerial/boss/mentor archetypes in our heads.
 
-##Grand
+## Grand
 I understand that Captain Picard is a fictional character and is not an actual leader. Unfortunately, we don't or can't have stream situations handled by actual great leaders or managers.
 
 Also, what are all those manager videos than just narratives about people management techniques? 
@@ -39,7 +39,7 @@ By having a narrative that deals in every episode with problem-solving on a dail
 It shows aspects of management as well as collaborative skill management and change management. 
 Sure it is in a fictional environment, but - again, aren't all those managerial webinars or scenarios we often are made to sit through also fictional? 
 
-##Captain's Log
+## Captain's Log
 So I guess my point is, any manager of people, should rewatch these shows - whether it be STNG or the Office or Parks and Rec or 30Rock - but watch them with an eye for: what are these managers doing right? what are these leaders doing right? 
 
 When you do this, when you actually pay attention, there is so much to glean about: leadership, work culture, the importance of autonomy and purpose to a direct report, embracing and pushing for the growth of direct reports, the importance of loyalty from a manager towards his reports (even in the face of diversity) and - most importantly - the importance of being able to admit to imperfections/mistakes as a manager and when a direct report is right.
