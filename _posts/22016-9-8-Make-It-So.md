@@ -30,6 +30,7 @@ I have come to the conclusion, more managers should be required to watch these e
 People management is actually a huge part of his day-to-day responsibilities. Just as it is with most managers. 
 As I was recognizing the perfection of Captain Picard's management techniques and abilities, I realized: in a lot of ways his manner as a manager has likely been in my head for the past 20+ years.
 Somewhere, subliminally, it is this type of manager-archetype I have judged all my previous managers off of. 
+
 You could say it's unfair, but I am sure we all do this. Whether you are conscious of it or not. 
 Whether it's Obi-wan or Chief Webber or Michael Scott or Leslie Knope or Jack Donaghey. We have these fictional character managerial/boss/mentor archetypes in our heads.
 
