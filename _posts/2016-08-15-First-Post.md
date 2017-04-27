@@ -4,6 +4,7 @@ author_profile: true
 ---
 
 # Work-in-Progress
+
 *Date: 08.15.2016*
 
 In an effort to get myself out of my comfort zone I have decided to start this page as a place to collect my thoughts, observations, great blog posts and other items related to HR & Project Management. 
