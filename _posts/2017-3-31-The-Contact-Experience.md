@@ -45,8 +45,10 @@ The above can also apply to a Project Manager who does some extra work when they
 
 ## You're an interesting species. An interesting mix. You're capable of such beautiful dreams, and such horrible nightmares.
 
-Ultimately, I think the primary lesson that one comes away with from an HR professional or Project Management perspective is: when it comes to your reports, project team members, or potential candidates - *be respectful, be empathetic and be compassionate*. 
+Ultimately, I think the primary lesson that one comes away with from an HR professional or Project Management perspective is: when it comes to your reports, project team members, or potential candidates - *be respectful, be empathetic, and be compassionate*. 
 
 Not every employee is going to necessarily *deserve* the extra time and effort I recommend above; but it is always worth the investment. 
 
-In our interactions with others it is paramount to respect them as individuals with dreams and aspirations who are seeking a little bit more out of their professional experience; not just being treated as another cog in the wheel.
+In our interactions with others it is paramount to respect them as individuals with dreams and aspirations - who are seeking a little bit more out of their professional experience; and would prefer not being treated as another cog in the wheel.
+
+Don't forget, <a href="https://www.youtube.com/watch?v=F9Bo89m2f6g">she breaks the wheel</a>. 
