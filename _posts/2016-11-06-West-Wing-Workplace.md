@@ -6,6 +6,7 @@ author_profile: true
 # West Wing: Reflections on the best televised Two-Term Presidency
 
 
+
 *Date: 11.06.2016*
 
 In honor of being a few days away from the closure of the most contentious election in recent memory, I decided to rewatch "The West Wing" over the past three weeks. Being a person who fervently studied political science in college and contemplated a career in that area - I actually do not like to watch many political dramas. Similar to my taste in sci-fi, I only like political drama's that are hopeful. I am very aware of the corrupt underbelly that exists in politics, I don't need it shoved in my face (aka House of Cards or Scandal). I prefer shows that can depict a realistic portrayal of government and specifically, show how we can make the best of it. How we can face the snarling, belligerent beast that exists in DC - and makes it submit to progressive ideals that benefit and protect the citizens of this country.
