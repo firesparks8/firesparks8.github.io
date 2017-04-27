@@ -4,6 +4,9 @@ author_profile: true
 ---
 
 # Small moves, Ellie. Small moves
+
+*Date: 03.31.2017*
+
 As I have mentioned in a prior post, I am a fan of optimistic Science Fiction. When the movie Contact came out, I was just starting the 8th grade. I remember being so inspired by the premise of the movie that I read the book *and* listened to the audiobook (ON CASSETTE TAPE!) when I would go on long road trips with my family. The images in the movie and so many aspects of the book have become ingrained in how I view the universe and my deep respect for scientists. 
 
 Carl Sagan's ability to bluntly discuss, acknowledge, and ponder the similarities and differences of both the pursuits of the scientific and the spiritual in his characters - just mesmerized me. I also think, he very accurately tapped into a deeper need so many of us find within us: the hope that what we do is important and that we have the opportunity to contribute something important to the world *or* to others. Even if it is on some small level. Granted, this need isn't often focused on until an individual's basic needs are met (see: <a href="https://en.wikipedia.org/wiki/Maslow%27s_hierarchy_of_needs">Maslow</a>). 
