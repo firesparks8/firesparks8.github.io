@@ -13,7 +13,7 @@ Carl Sagan's ability to bluntly discuss, acknowledge, and ponder the similaritie
 
 I recently started thinking about how this movie/book formed some early expectations and aspirations within me - when it came to the traditional thought of 'what will I be when I grow up'. My goal with this post is unpack some of what *Contact* represents and what lessons can be learned by an HR professional *and* a Project Manager.
 
-## I guess I'd say if it is just us... seems like an awful waste of space.
+## I guess I'd say if it is just us... seems like an awful waste of space.| *Motivation*
 
 The beginning of the movie begins with a young Ellie Arroway looking at the stars. 
 
@@ -23,9 +23,9 @@ There are also life events (and survival of those events) that get in the way of
 
 What that means to *you*, as a HR Professional or Project Manager, is that those individuals may need a little more coaching and an identification (provided by you) of an internal motivation that maybe they never previously recognized in their current profession. 
 
-It may take a bit of dialogue to find the motivation; but the investment up front in this regard will save you a lot of strain - and possibly save them a job - in the long run. Helping people find the thing that motivates them may seem common sense to most - but a lot of people do not take the time to do this for themselves. They are often too busy, too distracted - both at home and in the workplace - to do this sort of introspeection on their own. By you making an attempt to guide them, it will also allow you to create a personal connection with them which will be helpful in your working relationship in the future. They will know that you value them as a person, not just as an employee. This is *incredibly* important. This conversation doesn't have to take more than 30 minutes. As long as you approach them from a place of interest (and not that you are talking to them because their work quality is concerning) - you can normally achieve the goal of this dialogue with some pointed questions. *A little extra up front investment, will turn a profit*.
+It may take a bit of dialogue to find the motivation; but the investment up front in this regard will save you a lot of strain - and possibly save them a job - in the long run. Helping people find the thing that motivates them may seem common sense to most - but a lot of people do not take the time to do this for themselves. They are often too busy, too distracted - both at home and in the workplace - to do this sort of introspection on their own. By you making an attempt to guide them, it will also allow you to create a personal connection with them which will be helpful in your working relationship in the future. They will know that you value them as a person, not just as an employee. This is *incredibly* important. This conversation doesn't have to take more than 30 minutes. As long as you approach them from a place of interest (and not that you are talking to them because their work quality is concerning) - you can normally achieve the goal of this dialogue with some pointed questions. *A little extra up front investment, will always turn a profit*.
 
-## I've had my eye on you a long time, Doctor. <a href="https://www.youtube.com/watch?v=ePa6eUxhkYo">You are one of my most valuable long term investments</a>.
+## I've had my eye on you a long time, Doctor. <a href="https://www.youtube.com/watch?v=ePa6eUxhkYo">You are one of my most valuable long term investments</a>. | *Applicant Experience*
 
 I am linking you to a key scene that relates to Ellie Arroway being approached in the middle of the night by an intelligent, eccentric billionaire who reveals that he has been quietly watching her work and investing in her from afar. 
 
@@ -33,15 +33,15 @@ This interaction has remained with me my entire professional career. How *amazin
 
 Now, while back in the 90s it was impressive the variety of footage he had about Dr. Arroway; nowadays it doesn't take extensive Google-sleuthing to find a substantial amount of information about an individual. Between what they post themselves and what others post about them, you could hypothetically build a relatively extensive candidate profile - outside of what they provide you in a resume and cover letter. 
 
-A lot of applicants give you a lot of information *in* their resumes that can go overlooked during the screening process. I can't tell you how many times I've been on calls with recruiters who did little to know prep work before a screening call. 
+A lot of applicants give you a lot of information *in* their resumes that can go overlooked during the screening process. I can't tell you how many times I've been on calls with recruiters who did little to no prep work before a screening call. 
 
 Taking those extra steps before a call shows a candidate you care and that you pay attention to detail. 
 
-Honestly, it will also save you time down the line if you pay an extra bit of attention to a resume *before* that screener call. You may be able to gleen whether the individual would actually be a great fit for the organization or what talents they bring to the table. 
+Honestly, it will also save you time down the line if you pay an extra bit of attention to a resume *before* that screener call. You may be able to glean whether the individual would be a great fit for the organization or what talents they bring to the table. 
 
-Finally, as a recruiter or even a hiring manager - you represent your company to all potential candidates. Even if a candidate doesn't get the job; impressing them with some extra research and pointed questions that relate to their backgrounds or accomplishments - really goes a long way in elevating a company profile among the applicant community.
+Finally, as a recruiter or even a hiring manager - you represent your company to all potential candidates. Even if a candidate doesn't get the job; impressing them with some extra research and pointed questions that relate to their backgrounds or accomplishments - goes a long way in elevating a company profile among the applicant community.
 
-The above can also apply to a Project Manager who does some extra work when they are assigned new reports to a project team. Doing some investigation both internally and externally and familiarizing yourself with what they have done in the past can help you better understand their capaibilities and where different team members compliment eachother. It can also shed light to what tasks may best compliment or bring the best out of a person's attribute. This is definitely useful when being assigned a new project team or in a consulting project management role. Your team member's will appreciate the extra care you've spent forming their team profiles and trying to match them with tasks that will resonate with them.
+The above can also apply to a Project Manager who does some extra work when they are assigned new reports to a project team. Doing some investigation both internally and externally and familiarizing yourself with what they have done in the past can help you better understand their capabilities and where different team members complement each other. It can also shed light to what tasks may best compliment or bring the best out of a person's attribute. This is useful when being assigned a new project team or in a consulting project management role. Your team member's will appreciate the extra care you've spent forming their team profiles and trying to match them with tasks that will resonate with them.
 
 ## You're an interesting species. An interesting mix. You're capable of such beautiful dreams, and such horrible nightmares.
 
