@@ -27,7 +27,7 @@ It may take a bit of dialogue to find the motivation; but the investment up fron
 
 ## I've had my eye on you a long time, Doctor. <a href="https://www.youtube.com/watch?v=ePa6eUxhkYo">You are one of my most valuable long term investments</a>.
 
-I am linking you to a key scene that relates to Ellie Arroway being approached in the middle of the night by an intelligent, ecentric billionaire who reveals that he has been quietly watching her work and investing in her from afar. 
+I am linking you to a key scene that relates to Ellie Arroway being approached in the middle of the night by an intelligent, eccentric billionaire who reveals that he has been quietly watching her work and investing in her from afar. 
 
 This interaction has remained with me my entire professional career. How *amazing* would it be to get this kind of reception from a prospective employer? To have a recruiter or hiring manager reach out to you referencing your professional or educational background and accomplishments and why they think *you* are a great person or a good fit for *their* organization. 
 
