@@ -11,12 +11,11 @@ In honor of the forthcoming season 7 premiere of Game of Thrones happening this 
 
 Whether you are a Project Manager or an HR representative, an Administrator or an Executive – one thing you need to be able to do is lead. Even if it is just yourself. Being able to lead yourself and others through adversity, is a significant skill to hone and one that will help you down your career path. 
 
-That being said, why not reflect upon the strategies that have led the main protagonists in the show to where they are now? Sure, the setting isn’t the modern day professional workspace. But the basics haven’t changed much. People are still people. Motivated mostly by fear and aversion to those fears. We may not have dragon’s or White Walkers – but *we do have* tension filled commutes, office politics, strategic positioning, suspicion, backstabbing, and closed-door dealing. Has *that* much really changed? 
+That being said, why not reflect upon the strategies that have led the main protagonists in the show to where they are now? Sure, the setting isn’t the modern day professional workspace. But the basics haven’t changed much. People are still people. Motivated mostly by fear and aversion to those fears. We may not have dragon’s or White Walkers – but *we do have* tension filled commutes, office politics, strategic positioning, suspicion, backstabbing, and closed-door dealing. Has *that* much really changed?
+
+
 <img src="http://thethings0.imgix.net/wp-content/uploads/2017/01/game-of-thrones-memes-sn-5-15.jpg">
 
-
-
-## Please don't eat the help. - Tyrion
 
 ## I wonder if you're the worst person I've ever met. - Cersei
 
@@ -24,4 +23,6 @@ That being said, why not reflect upon the strategies that have led the main prot
 
 ## My reign has just begun. - Daenerys
 
-## The past is already written. The ink is dry. 
+## Please don't eat the help. - Tyrion
+
+## You’re in the great game now and the great game is terrifying. 
