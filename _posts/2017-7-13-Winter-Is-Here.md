@@ -19,10 +19,19 @@ That being said, why not reflect upon the strategies that have led the main prot
 
 ## I wonder if you're the worst person I've ever met. - Cersei
 
+
+<img src="http://www.idg.bg/wp-content/uploads/2016/11/screen-shot-2016-06-28-at-11-57-32-am.png">
+
 ## Thousands of men don't need to die. Only one of us. - Jon
+
+<img src="http://www.hollywoodreporter.com/sites/default/files/custom/Wigler/20160602_ep609_Publicity_still_041.00141346[1].jpg-EMBED.jpg">
 
 ## My reign has just begun. - Daenerys
 
+<img src="http://www.thegrandtest.com/wp-content/uploads/2016/05/Daenerys2.jpg">
+
 ## Please don't eat the help. - Tyrion
+
+<img src="https://s-media-cache-ak0.pinimg.com/736x/18/1a/1d/181a1dcf417aa9a1d84a767186959904--game-of-thrones-poster-game-of-thrones-quotes.jpg">
 
 ## You’re in the great game now and the great game is terrifying. 
