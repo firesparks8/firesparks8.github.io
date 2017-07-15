@@ -13,6 +13,8 @@ Whether you are a Project Manager or an HR representative, an Administrator or a
 
 That being said, why not reflect upon the strategies that have led the main protagonists in the show to where they are now? Sure, the setting isn’t the modern day professional workspace. But the basics haven’t changed much. People are still people. Motivated mostly by fear and aversion to those fears. We may not have dragon’s or White Walkers – but *we do have* tension filled commutes, office politics, strategic positioning, suspicion, backstabbing, and closed-door dealing. Has *that* much really changed?
 
+Oh and if you are NOT fully caught up through season 6 - #This post is dark and full of spoilers!
+
 
 <img src="http://thethings0.imgix.net/wp-content/uploads/2017/01/game-of-thrones-memes-sn-5-15.jpg">
 
