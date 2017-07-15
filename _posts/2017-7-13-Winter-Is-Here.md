@@ -32,6 +32,19 @@ Ultimately, this leadership style is one that has been utilized for thousands of
 ## Thousands of men don't need to die. Only one of us. - Jon
 
 <img src="http://www.hollywoodreporter.com/sites/default/files/custom/Wigler/20160602_ep609_Publicity_still_041.00141346[1].jpg-EMBED.jpg">
+Jon Snow. Or Jaeharys Targaryen. The Prince who was promised. Fire and ice. Bastard. 
+
+Jon is one of the most lovable characters on the show because he is authentic, humble, appreciative, forthright, and mostly righteous. He sacrifices himself for the sake of others time and again. Whether it is forsaking the only woman he ever loved (Ygritte) in order to go back to the Wall and report on the wildlings. Or refusing to return to Winterfell after the death and dispersion of his family members, because he swore an oath. Or charging the whole Bolton army after seeing Ramsay kill his brother, regardless of the consequences.
+
+One thing you note with Jon is he makes friends and strong allies with ease. He makes no real effort to do this. He just is his authentic self and in that way others are attracted to him. Something about his quiet determination and ethical compass speaks to those around him. Considering he has lived a life that was a mixture of luxury and scorn; it speaks multitudes about his internal motivations that he has turned out to be so selfless. He had a step mother who despised him. A ‘father’ who remained distant and secretive about his real mother. Luckily, he had siblings that mostly treated him equally. Obviously, a few of them never let him forget his ‘place’. 
+
+What can a modern day professional learn from Jon Snow? That it doesn’t take brown-nosing and overt words of flattery to endear yourself to others. Having a strong moral compass, a teamwork mentality, and ultimately the ability to make sacrifices for the greater good - appeals to everyone. It also encourages honesty and loyalty from those around you. You never see Jon lose his cool during a discussion about strategy with others. Even if he disagrees. He speaks his mind and let’s others speak theirs. Even when he was Lord Commander – his approach was one of genuine care for his brothers and for the realm in general. Of course those who don’t have this inert ability to attract loyalty, became his biggest haters. 
+
+And ultimately killed him. 
+
+The only thing Jon lacked (pre-death) was the awareness that not everyone should be given the benefit of the doubt. That, given the opportunity, people that dislike him won’t follow the rules of respect and ethics and may try to hurt or kill him. 
+
+Luckily, the modern professional does not need to worry about getting shanked. But, I would say that they do need to be aware of who they can consider an ally and who they need to keep at arms-length. Something as simple as letting off some steam in the office can have serious consequences. You need to know who you can talk to in confidence, and – more importantly - who you can’t. Also, there is something important to glean about being your authentic-self around others. Doing so will attract people who genuinely like you and can be those you can lean on in the office.
 
 ## My reign has just begun. - Daenerys
 
