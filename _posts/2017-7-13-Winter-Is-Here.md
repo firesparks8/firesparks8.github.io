@@ -35,7 +35,7 @@ Ultimately, this leadership style is one that has been utilized for thousands of
 
 <img src="http://firesparks8.github.io/images/Jon.jpg">
 
-Jon Snow. Or Jaeharys Targaryen. The Prince who was promised. Fire and ice. Bastard. 
+Jon Snow. Or Jaeharys Targaryen. The Prince who was promised. Fire and Ice. Azor Ahai (maybe). Bastard. 
 
 Jon is one of the most lovable characters on the show because he is authentic, humble, appreciative, forthright, and mostly righteous. He sacrifices himself for the sake of others time and again. Whether it is forsaking the only woman he ever loved (Ygritte) in order to go back to the Wall and report on the wildlings. Or refusing to return to Winterfell after the death and dispersion of his family members, because he swore an oath. Or charging the whole Bolton army after seeing Ramsay kill his brother, regardless of the consequences.
 
