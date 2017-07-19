@@ -16,7 +16,7 @@ That being said, why not reflect upon the strategies that have led the main prot
 Oh and if you are NOT fully caught up through Season 6 - #ThispostisDarkandfullofSpoilers
 
 
-<img src="firesparks8.github.io/images/Dark.gif">
+<img src="http://firesparks8.github.io/images/Dark.gif">
 
 
 ## I wonder if you're the worst person I've ever met. - Cersei
