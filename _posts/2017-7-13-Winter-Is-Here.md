@@ -58,7 +58,7 @@ What the modern professional can learn from Daenerys, is the importance of empat
 
 The other attribute that Danny has that more people need in the workplace: is confidence and sense of self. Danny knows what she wants, she knows what she can accomplish, she has faith in herself. She is a reminder of how important an internal drive is. More than once she has found herself in situations of destitution. Each time, she has worked her way to the top. At the start of the series, she started as an insecure and timid young girl. But she has utilized all her experiences to give her strength. This is a very important lesson for any professional and an attribute we should all be cultivating within ourselves.
 
-<img src="http://www.thegrandtest.com/wp-content/uploads/2016/05/Daenerys2.jpg">
+<img src="http://firesparks8.github.io/images/Danny.jpg">
 
 ## Please don't eat the help. - Tyrion
 
