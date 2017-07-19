@@ -29,11 +29,12 @@ There are still a lot of modern day managers and ‘professionals’ who think t
 
 Ultimately, this leadership style is one that has been utilized for thousands of years of human existence. There was a time, relatively recently, when it was justified by comparing it to the way a wolf pack is organized. With the Alpha Male and Female dealing swift justice to any who challenge their position. The reality is, that not even wolf pack’s work this way. Yes, they may have leaders, but they lead through sharing, empathy, teamwork, and tenderness to their pack. Not fear. They are more egalitarian than we initially thought. Which is something more modern leaders should encompass.
 
-<img src="http://www.idg.bg/wp-content/uploads/2016/11/screen-shot-2016-06-28-at-11-57-32-am.png">
+<img src="http://firesparks8.github.io/images/Cersei.png">
 
 ## Thousands of men don't need to die. Only one of us. - Jon
 
-<img src="http://www.hollywoodreporter.com/sites/default/files/custom/Wigler/20160602_ep609_Publicity_still_041.00141346[1].jpg-EMBED.jpg">
+<img src="http://firesparks8.github.io/images/Jon.jpg">
+
 Jon Snow. Or Jaeharys Targaryen. The Prince who was promised. Fire and ice. Bastard. 
 
 Jon is one of the most lovable characters on the show because he is authentic, humble, appreciative, forthright, and mostly righteous. He sacrifices himself for the sake of others time and again. Whether it is forsaking the only woman he ever loved (Ygritte) in order to go back to the Wall and report on the wildlings. Or refusing to return to Winterfell after the death and dispersion of his family members, because he swore an oath. Or charging the whole Bolton army after seeing Ramsay kill his brother, regardless of the consequences.
@@ -62,6 +63,8 @@ The other attribute that Danny has that more people need in the workplace: is co
 
 ## Please don't eat the help. - Tyrion
 
-<img src="https://s-media-cache-ak0.pinimg.com/736x/18/1a/1d/181a1dcf417aa9a1d84a767186959904--game-of-thrones-poster-game-of-thrones-quotes.jpg">
+<img src="http://firesparks8.github.io/images/Tyrion.jpg">
 
 ## You’re in the great game now and the great game is terrifying. 
+
+<img src="http://firesparks8.github.io/images/Group.jpg">
