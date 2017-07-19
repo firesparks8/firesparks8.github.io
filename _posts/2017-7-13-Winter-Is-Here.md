@@ -67,7 +67,16 @@ Also, I believe at the end of this series, Danny will realize she doesn't want t
 
 <img src="http://firesparks8.github.io/images/Tyrion.jpg">
 
+To use the colloquial Presidential litmus test, Tyrion is the guy that you want to grab a beer with. Or, really a glass of wine with - since he loves wine. In absolute transparency, Tyrion is my favorite character on the show. I love his sense of humor, his strategic brain, his humanity, and his good heart. Despite being raised around a family that hated him and blamed him for this mother’s death (other than Jamie) – Tyrion turned out ok.
 
+He is by no means “perfect” – and he will be the first to point that out. He has plenty of failings. But the way he has dealt with all of the terrible things that have been done to him or that he has had to deal with, has been admirable. He is fair, ethical, and compassionate – despite those attributes not often being bestowed onto him. 
+
+He often talks about how his stature (similar to Jon Snow’s last name) immediately translates to others something about them that can be ridiculed.  And yet, he has used this as a weapon (or as armor) by sharpening his intellect and strategic awareness. Most people don’t expect him to be as wily as he is, which is definitely an important attribute to have in order to survive. And survive he has. He started season 5 coming out of a box filled with his own excrement and ended season 6 as Hand of the Queen. That’s quite a career trajectory.
+
+There are volumes of lessons one can glean and utilize in the professional world when it comes to Tyrion. Always think 5 moves ahead of where you are.  Try to befriend (even just at the surface) all who you encounter. Be quick with an appropriate joke. Always look for alternative motivations to what people tell you.  Be compassionate. Do what is best for the majority, not the minority. Don’t expect of others what you won’t do yourself. Watch your paramour get on that damn boat yourself. Drink lots of wine (I kid). Tyrion has been burned plenty by trusting people too quickly and who end up being untrustworthy. The lesson that can be learned there is to not be quick to let people into your confidence super quickly. You can’t just immediately trust those who are attracted to your power or wealth; they need to befriend you for more internal attributes. To determine this, it takes time, patience, and observance. But, it is worth the wait. 
+
+At a prior job, I had no real “friends” in the office until my 2 ½ years in. Mostly due to my being very shrewd about who I would trust to vent and talk to openly without it  “getting around”. That person ended up becoming a bridesmaid at my wedding. 
+We have two ears and two eyes for a reason: listen, watch, and learn. 
 
 ## You’re in the great game now and the great game is terrifying. 
 
