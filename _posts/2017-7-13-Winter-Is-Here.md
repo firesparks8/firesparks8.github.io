@@ -59,8 +59,6 @@ What the modern professional can learn from Daenerys, is the importance of empat
 
 The other attribute that Danny has that more people need in the workplace: is confidence and sense of self. Danny knows what she wants, she knows what she can accomplish, she has faith in herself. She is a reminder of how important an internal drive is. More than once she has found herself in situations of destitution. Each time, she has worked her way to the top. At the start of the series, she started as an insecure and timid young girl. But she has utilized all her experiences to give her strength. This is a very important lesson for any professional and an attribute we should all be cultivating within ourselves.  As a Project Manager or HR leader - having compassion, internal drive, and empathy are assets that are invaluable and will help create general positive mention about you within an organization.
 
-Also, I believe at the end of this series, Danny will realize she doesn't want the power that she has been seeking all along. She will realize this is just an old narrative that she was fed from her brother and isn't truly what she was put on Westeros to do. She will find what she wanted was to change the establishment and bring a more equal, peaceful society. I believe that she will ultimately leave and journey to Asshai with her dragons to find out more about herself and to be ready if the peace is ever disrupted again. I believe she will find that being Queen of the 7 kingdoms is not what she wants, it is not what will bring her fulfillment. She will likely hand the governance over to Tyrion and Jon. That is, if she doesn't die in battle with the White Walkers. (Just my own opinion).
-
 <img src="http://firesparks8.github.io/images/Danny.jpg">
 
 ## Please don't eat the help. - Tyrion
@@ -79,5 +77,9 @@ At a prior job, I had no real “friends” in the office until my 2 ½ years in
 We have two ears and two eyes for a reason: listen, watch, and learn. 
 
 ## You’re in the great game now and the great game is terrifying. 
+
+In closing, the world of Westeros and the professional world are not too different. Politics, intrigue, flaming swords, dragons, ice zombies. The details don't matter. What they have in common is: people. Knowing yourself, how to lead others, who to trust - these are important regardless of realm. 
+
+In case you are curious, one idea I have for how this series will end is: Danny will realize she doesn't want the power that she has been seeking all along. She will realize this is just an old narrative that she was fed from her brother and isn't truly what she was put on the planet to do. She will find what she wanted was to change the establishment and bring a more equal, peaceful society. I believe that she will ultimately leave and journey to Asshai with her dragons to find out more about herself and to be ready if the peace is ever disrupted again. I believe she will find that being Queen of the 7 kingdoms is not what she wants, it is not what will bring her fulfillment. Maybe she will take Jorah with her. She will likely hand the governance over to Tyrion, Jon, Sansa, and create a social structure that is headed more twoards a federation. That is, if she doesn't die in battle with the White Walkers. Sam will become head Maester of the Citadel. Tyrion will get his winery.  (Just my own opinion).
 
 <img src="http://firesparks8.github.io/images/Group.jpg">
