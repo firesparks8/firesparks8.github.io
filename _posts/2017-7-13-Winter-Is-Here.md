@@ -3,7 +3,7 @@ layout: splash
 author_profile: true
 ---
 
-# I drink and I know things. - Tyrion
+# Lessons from a World of Ice & Fire
 
 *Date: 07.14.2017*
 
@@ -61,7 +61,7 @@ The other attribute that Danny has that more people need in the workplace: is co
 
 <img src="http://firesparks8.github.io/images/Danny.jpg">
 
-## Please don't eat the help. - Tyrion
+## I drink and I know things. - Tyrion
 
 <img src="http://firesparks8.github.io/images/Tyrion.jpg">
 
