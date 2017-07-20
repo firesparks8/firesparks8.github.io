@@ -3,7 +3,7 @@ layout: splash
 author_profile: true
 ---
 
-# I drink and I know things
+# I drink and I know things. - Tyrion
 
 *Date: 07.14.2017*
 
