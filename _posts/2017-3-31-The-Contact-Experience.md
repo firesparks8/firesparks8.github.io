@@ -13,7 +13,7 @@ Carl Sagan's ability to bluntly discuss, acknowledge, and ponder the similaritie
 
 I recently started thinking about how this movie/book formed some early expectations and aspirations within me - when it came to the traditional thought of 'what will I be when I grow up'. My goal with this post is unpack some of what *Contact* represents and what lessons can be learned by an HR professional *and* a Project Manager.
 
-## I guess I'd say if it is just us... seems like an awful waste of space.| *Motivation*
+## I guess I'd say if it is just us... seems like an awful waste of space | *Motivation*
 
 The beginning of the movie begins with a young Ellie Arroway looking at the stars. 
 
@@ -25,7 +25,7 @@ What that means to *you*, as a HR Professional or Project Manager, is that those
 
 It may take a bit of dialogue to find the motivation; but the investment up front in this regard will save you a lot of strain - and possibly save them a job - in the long run. Helping people find the thing that motivates them may seem common sense to most - but a lot of people do not take the time to do this for themselves. They are often too busy, too distracted - both at home and in the workplace - to do this sort of introspection on their own. By you making an attempt to guide them, it will also allow you to create a personal connection with them which will be helpful in your working relationship in the future. They will know that you value them as a person, not just as an employee. This is *incredibly* important. This conversation doesn't have to take more than 30 minutes. As long as you approach them from a place of interest (and not that you are talking to them because their work quality is concerning) - you can normally achieve the goal of this dialogue with some pointed questions. *A little extra up front investment, will always turn a profit*.
 
-## I've had my eye on you a long time, Doctor. <a href="https://www.youtube.com/watch?v=ePa6eUxhkYo">You are one of my most valuable long term investments</a>. | *Applicant Experience*
+## I've had my eye on you a long time, Doctor. <a href="https://www.youtube.com/watch?v=ePa6eUxhkYo">You are one of my most valuable long term investments</a> | *Applicant Experience*
 
 I am linking you to a key scene that relates to Ellie Arroway being approached in the middle of the night by an intelligent, eccentric billionaire who reveals that he has been quietly watching her work and investing in her from afar. 
 
@@ -50,5 +50,3 @@ Ultimately, I think the primary lesson that one comes away with from an HR profe
 Not every employee is going to necessarily *deserve* the extra time and effort I recommend above; but it is always worth the investment. 
 
 In our interactions with others it is paramount to respect them as individuals with dreams and aspirations - who are seeking a little bit more out of their professional experience; and would prefer not being treated as another cog in the wheel.
-
-Don't forget, <a href="https://www.youtube.com/watch?v=F9Bo89m2f6g">she breaks the wheel</a>. 
